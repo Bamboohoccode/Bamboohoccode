@@ -1,4 +1,4 @@
-# Nguyễn Trinh 👋
+# Nguyen Khanh Trinh 👋
 
 ## About me
 - Student 
